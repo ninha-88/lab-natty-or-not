@@ -13,6 +13,7 @@ Depois, transformei o texto em apresentação utilizando o GammaAPP, realizando 
 
 ## 🚀 Resultados
 O resultado ficou excelente, podendo ser utilizado até mesmo para apresentações e mídias sociais.
+https://gamma.app/docs/Educacao-Financeira-para-Iniciantes-hk6090wc9g2aabw
 
 ## 💭 Reflexão (Opcional)
 Foi surpreendentemente simples gerar o e-book, com muito mais rapidez e facilidade para editar do que com as ferramentas convencionais.
